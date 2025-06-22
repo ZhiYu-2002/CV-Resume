@@ -2,6 +2,6 @@
 
 ## Note
 
-CV for PhD application, version 1.0, 28/01/2025
+CV for PhD application, version 1.1, 22/06/2025
 
 It will be updated regularly. Thank you.
